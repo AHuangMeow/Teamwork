@@ -13,4 +13,4 @@ Basic Profile
 - Always hungry, KFC crazy Thursday v me 50 🍟
 🍟😋🍖
 
-![[Pasted image 20251118171644.png]]
+![](./pic.png)
